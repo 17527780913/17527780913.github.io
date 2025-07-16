@@ -7,3 +7,5 @@ Hello大家好。   我是彭博（的枪手），这是我的个人网站。
 [毕业生代表彭博在中国海洋大学2025届本科生毕业典礼暨学位授予仪式上的发言](https://mp.weixin.qq.com/s/0lUvXKXco2wR-9RrJQ4_lA "标题")
 
 [【OUC保研No.136】To中国海大：已识乾坤大，犹怜草木青)](https://mp.weixin.qq.com/s/WtWWUjOet2xGJqh9fS_Ijg "标题")
+
+这是我的一些照片：
