@@ -9,3 +9,5 @@ Hello大家好。   我是彭博（的枪手），这是我的个人网站。
 [【OUC保研No.136】To中国海大：已识乾坤大，犹怜草木青)](https://mp.weixin.qq.com/s/WtWWUjOet2xGJqh9fS_Ijg "标题")
 
 这是我的一些照片：
+![图片](https://github.com/17527780913/17527780913.github.io/blob/main/IMG_3041.JPG)
+![视频](https://github.com/17527780913/17527780913.github.io/blob/main/shipin.mp4)
